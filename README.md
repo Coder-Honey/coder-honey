@@ -22,8 +22,8 @@ If you're using my designs Give credit to me..
 ### You can also contact me on this social media accounts. 👇👇
 
 Portfolio : https://harshadachapre1.wixsite.com/dollysdesign <br>
-Dribble : https://dribbble.com/harshada99
-Instagram : https://www.instagram.com/dollysdesign99/
-Twitter : https://twitter.com/Honey61914661
-Facebook : https://www.facebook.com/Forever-Code-With-Honey-107243614447861/
-LinkedIn : https://www.linkedin.com/in/harshada-chapre-425745173/
+Dribble : https://dribbble.com/harshada99 <br>
+Instagram : https://www.instagram.com/dollysdesign99/ <br>
+Twitter : https://twitter.com/Honey61914661 <br>
+Facebook : https://www.facebook.com/Forever-Code-With-Honey-107243614447861/ <br>
+LinkedIn : https://www.linkedin.com/in/harshada-chapre-425745173/ <br>
