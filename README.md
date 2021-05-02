@@ -15,9 +15,8 @@ Here are some ideas to get you started:
 - 💬 Ask me about I am very passionate about designing, after graduation i am doing Freelance and getting a job.
 I will share my experience with you all guys, just be with me guys.
 - 📫 How to reach me: 	forevercodewithhoney@gmail.com
--->
 
-If you're using my designs Give credit to me..
+### If you're using my designs or code Give credit to me..
 
 ### You can also contact me on this social media accounts. 👇👇
 
