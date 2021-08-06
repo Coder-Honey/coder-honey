@@ -8,7 +8,7 @@ I'm also the creator of Dolly's Design, this is my freelance business which I wa
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on TeaCode Technologies
+- 🔭 I’m currently working as a Student
 - 🌱 I’m currently learning Cerificate in Information Technology in IGNOU
 - 👯 I’m freelancing on YOUTUBE, DRIBBLE, LINKEDIN
 - 🤔 I’m looking for help with Freelance Work
