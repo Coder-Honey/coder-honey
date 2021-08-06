@@ -1,4 +1,4 @@
-### Hi I'm Honey👋
+### Hi I'm Harshada👋
 
 #UX/UI Designer and Web Designer
 I'm an Indian, born and raised in Vadodara City.
