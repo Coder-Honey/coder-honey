@@ -23,6 +23,4 @@ I will share my experience with you all guys, just be with me guys.
 Portfolio : https://harshadachapre1.wixsite.com/dollysdesign <br>
 Dribble : https://dribbble.com/harshada99 <br>
 Instagram : https://www.instagram.com/dollysdesign99/ <br>
-Twitter : https://twitter.com/Honey61914661 <br>
-Facebook : https://www.facebook.com/Forever-Code-With-Honey-107243614447861/ <br>
 LinkedIn : https://www.linkedin.com/in/harshada-chapre-425745173/ <br>
