@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 Contact for Freelance work on “[Creative Canvas](https://creativecannvas.wixsite.com/creativecanvas)”
 - 🤔 I’m looking for help with Freelance Work
 - 💬 Ask me about I am very passionate about designing, after graduation i am doing Freelance and getting a job. I will share my experience with you all guys, just be with me guys.
-- 📫 How to reach me: [forevercodewithhoney@gmail.com](mailto:forevercodewithhoney@gmail.com)
+- 📫 How to reach me: [creativecannvas@gmail.com](mailto:creativecannvas@gmail.com)
 
 If you're using my designs or code Give credit to me..
 
